@@ -1,0 +1,1 @@
+# Padankan-Kata-Arah
